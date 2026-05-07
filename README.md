@@ -1,1 +1,1 @@
-# Pr-tica10ArturoY1
+# Pratica10-equipo-ArturoY1
